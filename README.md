@@ -1,5 +1,5 @@
-- 👋 Hi, I’m @RuchamaS
-- 👀 I’m interested in Cybersecurity Engineering and Working out:)
+- 👋 Hi, my name is @RuchamaS You can also call me Charna.
+- 👀 I’m interested in Cybersecurity and Working out:)-- mainly just helping people stay fit and stay safe!
 - 🌱 I’m currently learning more about job hunting and Cybersecurity itself!
 - 💞️ I’m looking to collaborate on any cool project that's connected with Cybersecurity
 - 📫 How to reach me: charnasteinberg@icloud.com 
